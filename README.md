@@ -1,1 +1,2 @@
-# w8
+go to google play open text now  sign  up with google account  write anyy number 234 or 432 (rember use a USA number ) now share number copy this number install whatsapp if you are using bussines then install simple whatsapp  if you use simple whatsapp then delet it and again install it  now after install whatsapp again click on agree and continu then you see 91 as a  country code change it to usa (united state ) then copy the number you taken from the app  now its otp write call me not msg because otp not sent accept the call and note down the otp now you see the number enter any name on name section  enjoy it as you want                     -niktaabhi 
+app name text now 
